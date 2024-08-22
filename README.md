@@ -1,1 +1,0 @@
-Convbase is the platform where advertisers reach engaged audiences and creators earn fairly, no matter where they're from. Powered by blockchain and driven by a dedicated team, Convbase ensures a seamless experience for both sides, making it the future of digital advertising and content creation.
